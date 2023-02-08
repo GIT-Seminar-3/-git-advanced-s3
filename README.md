@@ -1,7 +1,7 @@
-Борис Джериев
+Борис Джериев - Dzheb
 
-Vladimir Shytsko
+Vladimir Shytsko - shytsko
 
-Maria Aksenova
+Maria Aksenova - afinyshka
 
-Дмитрий Войтик
+Дмитрий Войтик - Voytima
